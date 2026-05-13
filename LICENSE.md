@@ -1,4 +1,4 @@
-# 
+# exclusive Panel for Affinity Photo for macOS - export to SVG and smart objects offers the most advanced Affinity Photo for macOS panel, with export to SVG and smart objects. Ideal
 
 
 
